@@ -6,3 +6,9 @@ Prayer:
 4: sei to bolchi 
 5: break down for all invesments
 6: notun chakri eith huge packhae
+7: nijre incom ebsehi hobe god ke foillow krole income bshi hobe
+8: baba loann clear hoye jeb 
+9: saivng berfe jabe thehn 
+10: beshi incom ehol ejob change kore nebo 
+11: loan niye bhabiba
+12: creditc ard niue bhabina
